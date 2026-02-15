@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming, Coding, Reading
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on any interesting project
-- 📫 How to reach me ...0525245430(Whatsapp)
+- 📫 How to reach me ...0525245430(Whatsapp) or +1 408-667-(3914)
 - 😄 Pronouns: ...Him
 - ⚡ Fun fact: Good at several sports!
 
